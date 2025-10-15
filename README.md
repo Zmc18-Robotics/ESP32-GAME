@@ -14,4 +14,4 @@ Components :
 
 My simple old project. Proyek simpel saya dulu
 
-Just try it and have fun. Nyawww~~~ :3 *Giggles*
+Just try it and have fun. Nyawww~~~ :3 
